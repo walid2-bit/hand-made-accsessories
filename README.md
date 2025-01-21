@@ -1,2 +1,2 @@
-# hand-made-accsessories
-accessories &amp; hand made &amp; care products.
+# Hand-made-accsessories
+Accessories &amp; Hand made &amp; Care products.
